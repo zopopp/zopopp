@@ -1,3 +1,3 @@
 - Hi, I’m @zopopp, 
-- Computer engineering major at the University of Maryland
+- Immersive Media Design major at the University of Maryland
 - zoe.poppert@gmail.com
